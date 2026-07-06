@@ -1,4 +1,4 @@
-# 
+# Nativo Foxit PDF Editor fluxo de trabalho para Mac OS | VIP Foxit PDF Editor fluxo de trabalho para PC Windows. Com reorganização de páginas e cartões corporativos — otimizado para máximo desempenho em cada plataforma.
 
 
 
